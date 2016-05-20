@@ -1,2 +1,0 @@
-# DIY
-JUST DO IT.
